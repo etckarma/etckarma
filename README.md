@@ -1,7 +1,6 @@
-ermmm
+👋
 
-- yo wsg i dont code much so dk
+- GSC Dev, not very talaented.
+- Knows a little html, and c#, but not alot at all.
 
-- gg go next ig i aint doing much
-
-https://geekedfelony.com
+https://etckarma.cc
